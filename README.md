@@ -1,1 +1,1 @@
-不能因为做不到，就否定了正确的事
+Can't deny the right thing, because it can't be done
